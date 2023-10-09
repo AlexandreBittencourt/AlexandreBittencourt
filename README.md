@@ -1,4 +1,4 @@
-## Olá amigo! Alexandre aqui, fique à vontado no meu perfil! 🎉
+## Olá amigo! Alexandre aqui, fique à vontade no meu perfil! 🎉
 
 
 <div align="center">
